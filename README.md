@@ -14,4 +14,4 @@
 # Accepting some coding works/requests for some limited time.
   - Loaders,injectors,drivers,cheats etc. mostly I can accept every request. (c++,c#,python,java,lua)
 
-# IF YOU INTERESTED PLEASE CONTACT ME THROUGH TELEGRAM -> https://t.me/xyrxw
+# IF YOU ARE INTERESTED PLEASE CONTACT ME THROUGH TELEGRAM -> https://t.me/xyrxw
